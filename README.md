@@ -1,2 +1,4 @@
 # Smart-SDLC
-"https://cca6df6cb886b855ae.gradio.live"
+https://drive.google.com/file/d/1FETYyqALLslUAqFgHv5XDr3tX-JYuUMW/view?usp=sharing
+
+
